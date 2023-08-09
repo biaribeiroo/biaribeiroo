@@ -8,6 +8,3 @@ Minhas matérias favoritas são:
 - Biologia 🧬
 - Literatura 📖
 - Inglês🗽
-- Programaç
-
-
